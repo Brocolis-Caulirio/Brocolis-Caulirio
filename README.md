@@ -1,7 +1,7 @@
 
 Hewo✨
 
-My name is Brócolis Caulírio, am a brazilian transfem non binary person and my pronouns are 💖they/them💖
+My name is Bell Sillian, am a brazilian transfem non binary person and my pronouns are 💖they/them💖
 
 I work on game development and my skills currently are:
 - 🥦 Shader development (advanced)
